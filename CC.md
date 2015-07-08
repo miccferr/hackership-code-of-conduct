@@ -53,7 +53,7 @@ If you are subject to or witness unacceptable behavior, or have any other concer
 - Flag the behaviour! Raise awareness towards the behaviour. Discuss it directly with the 'offender' using a polite expression, remembering the offender about the CC. Rember to **NOT** assume that the offense was intentional. We're all humans and mistakes can happen.  
 - Talk with your family coach
 - Talk with an organizer (Ben/Charlotte/Anouk)
-- At the conflict's resolution, share a beer!!!
+- At the conflict's resolution, share a beer!!! :beers:
 
 Additionally, community organizers are available to help community participants engage with local law enforcement or to otherwise help those experiencing unacceptable behavior feel safe. In the context of in-person events, organizers will also provide escorts as desired by the person experiencing distress.
 
